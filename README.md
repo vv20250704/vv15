@@ -13,6 +13,6 @@
 平台上的日本AV内容种类丰富，从经典影片到最新热门作品应有尽有。最吸引人的是，这些平台都是免费的，通过广告支持，观看时无需付费。
 它们注重隐私保护，使用加密技术保障用户的个人信息安全。简洁的界面和强大的搜索功能，让你快速找到自己喜欢的影片，享受无广告、无干扰的观影体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/vv20250704/vv15 ）</span>
 
 
